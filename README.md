@@ -3,9 +3,8 @@ X-Apple-ActionSignature 算法 iTunes X-Apple-ActionSignature 算法 apple X-App
 
 
 
-
-X-Apple-ActionSignature 算法 iTunes X-Apple-ActionSignature 算法 apple X-Apple-ActionSignature 算法
-
+QQ:94380923
+vx:hip958
 
 有完整的解决方案. 证书交换处理 X-Apple-ActionSignature 算法 有需要的来
 QQ:94380923
